@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil de CyberGh-93 😁
+## Bem-vindo(a) ao perfil de CyberGh-93 
 
  <div>
    <a href="https://github.com/CyberGh-93">
